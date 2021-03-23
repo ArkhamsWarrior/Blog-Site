@@ -10,7 +10,7 @@ Not only can the information benefit you, but every subject and topic that we le
 While this project is not entirely focused on my Software Engineering pathway, this is a project that's essential to me. Instead of sharpening my skills in one department, I will be throwing everything but the kitchen sink in a way. 
 I have so many interests in life (too many to be fair) that I constantly give spotlight to periodically, and I believe there is a need to better incorporate that information into a holistic project. 
 
-Why limit myself? Why can't I learn code, learn law, learn etiquette, educate myself on race, and etc all within one journal? 
+Why limit myself? Why can't I learn code, learn the justice system, improve my writing, educate myself on race, and etc all within one journal? 
 When I record these kinds of information on paper, I always tend to scatter and segregate that information rather than attempting to connect it and keep it in an organized, legible repository. That's really not the best way to go about learning, at least to me. 
 
 In sum, I have a diverse amount of interests in life that I cannot conceal, such as:
